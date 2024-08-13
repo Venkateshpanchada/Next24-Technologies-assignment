@@ -1,0 +1,1 @@
+# Next24-Technologies-assignment
